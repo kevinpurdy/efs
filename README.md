@@ -1,2 +1,0 @@
-# elizabethfoxsolomon
-Personal home page
